@@ -1,1 +1,0 @@
-[**✅Check Price on Amazon**](https://amzn.to/4hgnnQD)
